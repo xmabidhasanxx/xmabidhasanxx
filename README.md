@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Abid
-- 👀 I’m interested in cybersecurity and crypto
+- 👀 I’m interested in Cybersecurity and Cryptocurrency
 - 🌱 I’m currently a student
 - 💞️ I’m looking to learn skills which help me in building my portfolio strong
 - 📫 Reach me by my email @ malikabidhasan@gmail.com
